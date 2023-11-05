@@ -9,7 +9,7 @@ I've been a serial entrepreneur for over 10 years, learning the ends and out of 
 *   🌍  I'm based in California
 *   🧠  I'm learning a new framework.
 *   🤝  I'm open to collaborating on interesting projects.
-*   ⚡  While I am finding time to customize my online profile, checkout some places you can find me...
+*   ⚡  I'm working on creating a new marketplace, while I am finding time to customize my online profile, checkout some places you can find me...
 
   ### Skills 
 <p align="left">
